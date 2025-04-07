@@ -1,2 +1,1 @@
-Şiirlerim
-Şiirlerim
+Buradaki bütün şiirler bana aittir. Kopyalanamaz, çoğaltılamaz.
